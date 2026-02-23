@@ -1,5 +1,5 @@
 #  About Me:
-Hello friend, my name is Chris, I was born on October 20, 2010, I am from Mexico, I learned programming and hacking at the age of 12, at the age of 14 I learned social engineering, could it be that I am a systems engineer? <br>I'm gray hat, I have depression but I've still tried to be happy and fit in with society, I don't have real friends :)<br>The question here is: will I be alive by 2030?<br>Life is sh_.t, I want a real love, a real house, a real thing that I can do every day... I prefer to die if I don't get it... <br><br>welcome to my profile friend
+hello friend <br><br>welcome to my profile friend
 
 
 ## 🌐 Socials:
