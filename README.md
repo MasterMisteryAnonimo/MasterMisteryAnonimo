@@ -1,5 +1,12 @@
 #  About Me:
-hello friend <br><br>welcome to my profile friend
+hello friend im from mexico 
+I am:
+malware//spyw creator
+Osint creator
+gray hat and red team|||
+————————————————————————
+I'm 15 years old, I've been learning this since I was 12.
+<br><br>welcome to my profile friend
 
 
 ## 🌐 Socials:
